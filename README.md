@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Donkeykong307
+- 👀 I’m interested in finding new and interesting projects
+- 🌱 I’m currently learning. Be kind :)
